@@ -1,4 +1,4 @@
-Only on here to stalk or steal thanks. 
+Only on here to stalk/steal/learn thanks. 
 
 <!---
 firewalkwme/firewalkwme is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
